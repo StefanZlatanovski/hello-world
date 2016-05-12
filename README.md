@@ -1,2 +1,2 @@
 # hello-world
-bla bla hello
+Eve sega napishav neshto
